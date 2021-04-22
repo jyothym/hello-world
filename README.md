@@ -5,3 +5,7 @@ Lets work on our humanity
 
 
 Each of us must work for his own improvement, and at the same time share a general responsibility for all humanity. 
+
+the brain is a very big place, in a very small space
+
+Archimedes is known as the Father Of Mathematics
